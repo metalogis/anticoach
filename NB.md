@@ -1,0 +1,111 @@
+# Notas bibliográficas [[Zettelkasten @ Luhmann]]
+
+- [[[1]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_1_1_V) unit and unification of the group in general
+- [[[2]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_2_V) state as an idea
+- [[[3]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_3_V) Legal method in the application of constitutional and international law
+- [[[4]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_4_V) right of veto
+- [[[5]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_5_1_V) control
+- [[[6]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_6_V) equality
+- [[[7]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_7_1_V) The value of the organization
+- [[[8]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_8_1_V) The system as a research tool
+- [[[9]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_9_V) State as an organization in principle
+- [[[10]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_10_V) organization as imagination and as reality
+- [[[11]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_11_V) individual/community problem
+- [[[12]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_12_1_V) organization and law
+- [[[13]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_13_1_V) unification of wills
+- [[[14]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_14_1_V) politics
+- [[[15]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_15_V) Structural homogeneity -
+- [[[16]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_16_V) Sovereignty
+- [[[17]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_17_1_V) ideology
+- [[[18]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_18_V) party Note 2
+- [[[19]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_19_V) frontiers of organizational theory
+- [[[20]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_20_1_V) planning
+- [[[21]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_21_1_V) statesman
+- [[[22]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_22_V) exception
+- [[[23]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_23_1_V) formal sociology
+- [[[24]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_24_1_V) competition
+- [[[25]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_25_V) suggestion
+- [[[26]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_26_1_V) power
+- [[[27]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_27_1_V) Constitution
+- [[[28]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_28_1_V) The essence of the organization fundamentally
+- [[[29]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_29_V) organizational theory, general and methodical
+- [[[30]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_30_1_V) revolutions
+- [[[31]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_31_V) concept formation
+- [[[32]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_32_V) method
+- [[[33]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_33_V) theory/practice contrast
+- [[[34]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_34_V) state of emergency
+- [[[35]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_35_V) national territory
+- [[[36]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_36_1_V) government Note 3
+- [[[37]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_37_1_V) operator
+- [[[38]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_38_V) Historical foundation of the theory of the state as a science
+- [[[39]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_39_1_V) identity
+- [[[40]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_40_1_V) welfare state
+- [[[41]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_41_V) Majority Principle
+- [[[42]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_42_1_V) line
+- [[[43]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_43_1_V) coordination
+- [[[44]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_44_1_V) Division of Labor
+- [[[45]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_45_1_V) authority
+- [[[46]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_46_1_V) discipline
+- [[[47]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_47_V) command
+- [[[48]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_48_V) centralization
+- [[[49]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_49_V) Hierarchy
+- [[[50]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_50_V) representation
+- [[[51]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_51_V) Adequacy of organization
+- [[[52]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_52_1_V) organization/ human
+- [[[53]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_53_V) Masked Relationships
+- [[[54]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_54_V) legitimacy
+- [[[55]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_55_1_V) technique Note 4
+- [[[56]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_56_V) size of the organization
+- [[[57]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_57_V) Science
+- [[[58]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_58_1_V) The problem as a research tool
+- [[[59]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_59_1_V) reward
+- [[[60]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_60_1_V) decisions
+- [[[61]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_61_1_V) measurement of social performance
+- [[[62]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_62_V) roll
+- [[[63]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_63_V) lot
+- [[[64]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_64_1_V) probability theory
+- [[[65]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_65_1_V) bureaucracy
+- [[[66]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_66_V) The spirit of institutions
+- [[[67]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_67_V) creation of organizations
+- [[[68]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_68_1_V) communication in the organization
+- [[[69]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_69_V) integration
+- [[[70]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_70_1_V) informal organizations
+- [[[71]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_71_1_V) responsibility
+- [[[72]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_72_1_V) empowerment permission
+- [[[73]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_73_V) state
+- [[[74]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_74_1_V) The post Note 5
+- [[[75]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_75_1_V) office
+- [[[76]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_76_1_V) causality
+- [[[77]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_77_1_V) concept of the world
+- [[[78]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_78_V) philosophical concepts
+- [[[79]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_79_1_V) conflicts and their resolution
+- [[[80]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_80_1_V) checks and balances
+- [[[81]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_81_V) status naturalis
+- [[[82]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_82_1_V) sanction
+- [[[83]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_83_V) performance increase
+- [[[84]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_84_1_V) regulation
+- [[[85]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_85_V) historical conceptions of the state
+- [[[86]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_86_1_V) delegations
+- [[[87]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_87_V) legislation
+- [[[88]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_88_1_V) institutions
+- [[[89]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_89_V) State / Public Order of the Middle Ages
+- [[[90]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_90_1_V) success
+- [[[91]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_91_V) administrative science, administrative reform
+- [[[92]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_92_V) State science funding
+- [[[93]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_93_1_V) Political Pedagogy
+- [[[94]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_94_1_V) political science Note 6
+- [[[95]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_95_1_V) info
+- [[[96]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_96_V) poster
+- [[[97]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_97_V) promises
+- [[[98]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_98_V) separation of powers
+- [[[99]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_99_V) collegiality
+- [[[100]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_100_1_V) On the religious foundation of the social order
+- [[[101]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_101_V) art
+- [[[102]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_102_1_V) initiative
+- [[[103]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_103_V) Modern social order
+- [[[104]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_104_V) Constituency
+- [[[105]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_105_1_V) feedback, feedback
+- [[[106]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_106_1_V) installments
+- [[[107]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_107_V) family
+- [[[108]]](https://niklas-luhmann-archiv.de/bestand/zettelkasten/zettel/ZK_1_NB_108_V) advertisement          
+

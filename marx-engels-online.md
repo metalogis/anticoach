@@ -1,3 +1,11 @@
+# Mrax e Engels: textos disponíveis online
+
+- [inglês](https://marxists.architexturez.net/archive/marx/works/date/index.htm)
+
+- [português, galego](https://marxists.architexturez.net/portugues/marx/index.htm)
+
+---
+
 - Reflexões de um Jovem sobre a Escolha de uma Profissão (1835) [português]
 - Carta ao pai em Tréveris [texto em Português da Galiza] (1837) [português]
 - A Book of Verse (M) 1838 (1838) [inglês]

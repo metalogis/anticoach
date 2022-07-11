@@ -1,4 +1,4 @@
-# Mrax e Engels: textos disponíveis online
+# Marx e Engels: textos disponíveis online
 
 - [inglês](https://marxists.architexturez.net/archive/marx/works/date/index.htm)
 
